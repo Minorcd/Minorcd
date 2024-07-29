@@ -1,14 +1,14 @@
 Hey There!
 
 My name is Caeleb.
-I usually go by either my username, my gamertag (GodofLegends or just Legend), or just my regular name.
+I usually go by either my username, my gamertag (GodofLegends or just Legend), or just by my regular name.
 
 My Interests
   - Coding (Languages: C/C++, C#, Java, Python, and HTML/CSS)
   - Anime/Manga (Favorite Anime: Fairy Tail/ Favorite Manga: Tokyo Ghoul)
   - Comic Books (DC/Marvel/Image)
   - Video Games (Fighting Games, Single-Player Story, or Online Multiplayer) (Currently Playing: Elden Ring SOTE)
-  - Graphic Design (Making iphone wallpapers and etc)
+  - Graphic Design (Making iPhone wallpapers and etc)
   - Creative Writing (Not but experience but I wanna get into the habit of writing stories)
   - Blacksmithing (No experience yet but I wanna try it)
 
